@@ -1,0 +1,3 @@
+1. Preheat the oven to 400 degrees F. Butter eight 6-ounce ramekins and sprinkle each with 1/2 teaspoon granulated sugar.
+2. Combine the butter, cinnamon, cayenne, nutmeg and chocolate in a saucepan over low heat, stirring frequently until melted and smooth. Cool slightly. Whisk the flour, confectioners' sugar, eggs and yolks, vanilla extract and almond extract in a bowl until creamy. Whisk in the melted chocolate mixture. Divide among the prepared ramekins.
+3. Bake the cakes until the tops are stiff and the edges darken, 12 to 14 minutes. Remove from the oven and let cool 5 minutes. Loosen the edges of the cakes with a small paring knife and transfer to plates while warm. Dust with confectioners' sugar.
